@@ -1,1 +1,1 @@
-# my-safe-knowleadge-favorites
+# my-safe-key-point-favorites
